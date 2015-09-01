@@ -1,2 +1,0 @@
-Ahmad Wagdy
-Cardinals
